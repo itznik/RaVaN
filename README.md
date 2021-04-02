@@ -1,4 +1,4 @@
-<h3 align="center">†hê Clønê øf</h3>
+
 <h2 align="center"> <a href="https://github.com/Itznik">🔥 The Itznik_x 🔥</a></h2>
 
 
